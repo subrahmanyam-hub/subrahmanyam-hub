@@ -14,6 +14,7 @@ Office: MS
 Other Sills: Machine Learning, Deep Learning, NLP, Statistics and Web Scraping
 
 💼 any freelance work? do reach, email :)
+
 💬 ask me about anything, i am happy to help;
 languages and tools:
 
